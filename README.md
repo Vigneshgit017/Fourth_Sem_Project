@@ -2,8 +2,7 @@
 
 We have seen these DRS being used in International Cricket matches but in local
 tournaments or in gully cricket we have not seen such kind of technology. This
-technology includes television replays and video processing.Most of us have played gullyDRS FOR GULLY CRICKET 2019-20
-DEPT OF ISE,NHCE PAGE NO: 3
+technology includes television replays and video processing.Most of us have played gully
 cricket and some people play local tournaments which are restricted to Taluk and district. When the runouts or catches are taken. Some decisions are confusing and tough. In
 every such matches I have seen many fights happening because they think that the
 umpire is biased and they think that he is not giving the right decision. One such event
